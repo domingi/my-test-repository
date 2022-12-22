@@ -1,1 +1,1 @@
-Тестовый файл
+No code No pain
